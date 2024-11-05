@@ -1,1 +1,1 @@
-# 🚀no spare effort
+# 🚀
