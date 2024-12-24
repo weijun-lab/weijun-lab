@@ -1,2 +1,2 @@
 # blog
-zihelab.com
+https://zihelab.com
